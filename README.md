@@ -1,0 +1,1 @@
+# synqroshop-info
